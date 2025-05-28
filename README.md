@@ -2,7 +2,7 @@
 
 ## 📌 Upwork Job
 
-[🔗 View This Job on Upwork]([https://www.upwork.com/job-link-here](https://www.upwork.com/jobs/~021927708932488243264?referrer_url_path=%2Fbest-matches%2Fdetails%2F~021927708932488243264))
+[🔗 View This Job on Upwork](https://www.upwork.com/jobs/~021927708932488243264?referrer_url_path=%2Fbest-matches%2Fdetails%2F~021927708932488243264)
 
 ## 💰 Payment Info
 
